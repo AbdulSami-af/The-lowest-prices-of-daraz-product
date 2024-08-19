@@ -1,1 +1,0 @@
-# The-lowest-prices-of-daraz-product
